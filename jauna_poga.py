@@ -1,2 +1,0 @@
-prima rinda
-otra rinda
